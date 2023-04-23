@@ -1,0 +1,2 @@
+# Pregunta-Nro_1
+PREGUNTA Nro1 DEL PRIMER PARCIAL
